@@ -44,6 +44,7 @@
 ### 📫 Connect with Me  
 - 💼 [LinkedIn]((https://www.linkedin.com/in/ajinkyababar))  
 
+![image](https://github.com/user-attachments/assets/d2169b1d-049c-4d7e-b8f0-0f903b48be15)
 
 ---
 
